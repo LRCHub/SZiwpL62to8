@@ -1,0 +1,77 @@
+# LE SSERAFIM – ANTIFRAGILE
+
+> **歌詞登録ステータス：同期歌詞あり**
+
+```lrc
+[00:00.03] Anti-ti-ti-ti-fragile, fragile
+[00:02.48] Anti-ti-ti-ti-fragile
+[00:04.61] Anti-ti-ti-ti-fragile, fragile
+[00:07.16] Antifragile, antifragile
+[00:19.16] 
+[00:09.05] 가시밭길 위로 riding, you made me boost up (ah)
+[00:13.86] 거짓으로 가득 찬 party 가렵지도 않아
+[00:17.73] 내 뒤에 말들이 많아
+[00:20.05] 나도 첨 듣는 내 rival
+[00:22.43] 모두 기도해 내 fallin'
+[00:24.42] 그 손 위로, I'ma jump in, yes, gimme that
+[00:42.92] 
+[00:27.74] 걸어봐 위엄 like a lion, 눈빛엔 거대한 desire (na-na-na, eh)
+[00:32.30] 더 부어 gasoline on fire, 불길 속에 다시 날아 rising (na-na-na, eh-oh)
+[00:37.50] 잊지 마, 내가 두고 온 toe shoes, 무슨 말이 더 필요해?
+[00:42.01] 무시 마, 내가 걸어온 커리어, I go to ride 'til I die, die
+[01:05.01] 
+[00:46.42] 더 높이 가줄게, 내가 바랐던 세계 젤 위에 (ah, ah)
+[00:51.23] 떨어져도 돼, I'm antifragile, antifragile (ah, ah)
+[00:55.69] 난 지금 on my way, 갖다버려 줘 너의 fairy tale (ah, ah)
+[01:00.48] Now you know my name, I'm antifragile, antifragile
+[01:25.48] 
+[01:04.17] Anti-ti-ti-ti-fragile, fragile
+[01:06.55] Anti-ti-ti-ti-fragile
+[01:08.70] Anti-ti-ti-ti-fragile, fragile
+[01:11.03] Antifragile, antifragile
+[01:23.03] 
+[01:13.95] Lovey, lovey, lovey, dovey, dovey, dovey
+[01:16.26] 멋대로 정하네 나란 애에 대해
+[01:18.59] I don't know what to say
+[01:20.18] I can't feel it
+[01:27.68] 
+[01:21.71] 뜨거운 관심은 환영
+[01:23.99] 귀여운 질투는 go ahead
+[01:26.16] 줄 달린 인형은, no, thanks
+[01:28.64] 내 미랠 쓸 나의 노래, yeah, gimmе that
+[01:43.64] 
+[01:31.69] 걸어봐 위엄 like a lion, 눈빛엔 거대한 desire (na-na-na, eh)
+[01:36.29] 더 부어 gasoline on fire, 불길 속에 다시 날아 rising (na-na-na, eh-oh)
+[01:41.43] 잊지 마, 내가 두고 온 toe shoes, 무슨 말이 더 필요해?
+[01:45.90] 무시 마, 내가 걸어온 커리어, I go to ride 'til I die, die
+[02:08.90] 
+[01:50.26] 더 높이 가줄게, 내가 바랐던 세계 젤 위에 (ah, ah)
+[01:55.39] 떨어져도 돼, I'm antifragile, antifragile (ah, ah)
+[01:59.77] 난 지금 on my way, 갖다버려 줘 너의 fairy tale (ah, ah)
+[02:04.59] Now you know my name, I'm antifragile, antifragile
+[02:29.59] 
+[02:08.14] Anti-ti-ti-ti-fragile, fragile
+[02:10.30] Anti-ti-ti-ti-fragile
+[02:12.61] Anti-ti-ti-ti-fragile, fragile
+[02:15.09] Antifragile, antifragile
+[02:27.09] 
+[02:17.21] We can break it, baby
+[02:18.92] Rock it, twist it, lock it, baby
+[02:21.30] All I know is you can't chain me
+[02:23.53] 'Cause I'm gonna break out, gonna, gonna break out, out
+[02:51.03] 
+[02:26.46] We can break it, baby
+[02:28.00] Rock it, twist it, lock it, baby
+[02:30.42] All I know is you can't chain me
+[02:32.72] 'Cause I'm gonna break out, gonna, gonna, break out, out (whoa-oh!)
+[03:06.22] 
+[02:36.25] 더 높이 가줄게, 내가 바랐던 세계 젤 위에 (ah, ah)
+[02:41.02] 떨어져도 돼, I'm antifragile, antifragile (ah, ah)
+[02:45.46] 난 지금 on my way, 갖다버려 줘 너의 fairy tale (ah, ah)
+[02:50.20] Now you know my name, I'm antifragile, antifragile
+[03:15.20] 
+[02:53.79] Anti-ti-ti-ti-fragile, fragile
+[02:56.25] Anti-ti-ti-ti-fragile
+[02:58.48] Anti-ti-ti-ti-fragile, fragile
+[03:00.79] Antifragile, antifragile
+```
